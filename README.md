@@ -5,4 +5,3 @@
 cherr/reau 🍒 <b>19</b> years old. (S)Her <b>♀</b> Italian. <br><ins>gyjo, diadop, seccolata, jotakak lover</ins><br>  
 </p>
  </b>
- <p align="center">᭢꤬ <sup><b><a href="https://rentry.co/gyjos">PONY TOWN RENTRY</a> • read if you want.</b></sup> <br> 
